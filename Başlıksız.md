@@ -5,7 +5,7 @@ sadasfsaf
 asfsafsa
 asfsa
 ## Ben
-![[../img/Pasted image 20241007184446.png]]
+![](../img/Pasted%20image%2020241007184446.png)
 asfsafsa
 
 asfafs
