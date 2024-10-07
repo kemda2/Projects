@@ -7,7 +7,7 @@ asfsafsa
 asfsa
 ## Ben
 
-![[Pasted image 20241007184446.png]]
+![[Pasted%20image%2020241007184446.png]]
 
 asfsafsa
 
